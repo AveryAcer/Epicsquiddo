@@ -1,4 +1,6 @@
+Basic DNI criteria
 
+I also have social anxiety, I probably won't start convos first. INT if you wanna
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
