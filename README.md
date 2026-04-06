@@ -1,4 +1,10 @@
+[𝓟𝓻𝓸𝓷𝓸𝓾𝓷𝓼 𝓟𝓪𝓰𝓮](https://en.pronouns.page/@AveryAcer)
 
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧⊹₊˚‧
+
+[𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮](https://averynovalite.straw.page)
+
+![edrdfx](https://github.com/user-attachments/assets/e6b0c8ff-9a27-4cb5-bdcb-4810715386ff)
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
